@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Haivabong
+- 👋 Hi, I’m @Liz
 - 👀 I’m interested in ...Technology Information, AI robot, artificial intelligence
 - 🌱 I’m currently learning ...Technology Information
 - 💞️ I’m looking to collaborate on ...Where can I collaborate, I will collaborate
